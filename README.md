@@ -153,3 +153,9 @@ Potential next steps for this project:
 ---
 
 **Tools:** Microsoft Excel | **Dataset Size:** 54,986 records | **Analysis Period:** 2015–2018
+
+
+## Open to work and freelance projects
+
+Email: vishvi0807@gmail.com
+
